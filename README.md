@@ -1,2 +1,0 @@
-# NenRaya
-Gerard y Gorka
